@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lmntrix123110
 - 👀 I’m interested in new tectnologies
-- 🌱 I’m currently learning B.Tect
+- 🌱 I’m currently learning B.Tech
 - 💞️ I’m looking to collaborate on any platform
 - 📫 How to reach me through email avikdeb222@gmail.com
 
